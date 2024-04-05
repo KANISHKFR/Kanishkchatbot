@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open VChat Bot Owner Id...
 
 
-<p align="center"><a href="https://t.me/BikashHalder"><img src="https://te.legra.ph/file/e30f5a295dd0ca45f0163.jpg"></a></p>
+<p align="center"><a href="https://t.me/izanafr"><img src="https://telegra.ph/file/da7e643bd8778ff0c5180.jpg"></a></p>
 
 
 
@@ -20,37 +20,37 @@ Click Below Picture To Open VChat Bot Owner Id...
 
 ## 🥀 Kaali Linux Tutorial
 
-[Kaali Linux](https://youtu.be/_nZT5lhcL8U)
+[Kanishk Linux](https://youtu.be/zu9-eLo1nCY?si=F8ImBpXQ3qxrCCrU)
 
 ## 🥀 Chat Bot Deploy Tutorial On Kaali Linux 
 
-[Kaali Linux](https://youtu.be/fFRxAG1mCVU)
+[Kaali Linux](https://youtu.be/zu9-eLo1nCY?si=F8ImBpXQ3qxrCCrU)
 
 ## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭
-[𝐁𝐢𝐤𝐚𝐬𝐡](https://t.me/BikashHalder)
+[kanishk](https://t.me/izanafr)
 
 ## Telegram 🏪
 
-[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/BGT_Chat)
+[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/anime_galaxy_chat)
 
 [![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/Bikashgadgetstech)
 
 ## YouTube 📺
 
-[YouTube Channel](https://youtube.com/channel/UCUkj6FFzdsOO5acUXVOEECg)
+[YouTube Channel](https://youtu.be/zu9-eLo1nCY?si=wCTX1DMxQjXOp9ib)
 
 
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![Bikash Halder](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/BikashHalder)
+[![kanishk](https://telegra.ph/file/af4ec93faff10cb5d218b.jpg)](https://t.me/kanishk)
 
 
-#### Main Developer = [Bikash](https://t.me/BikashHalder)
+#### Main Developer = [kanishk](https://t.me/izanafr)
 
 ## 💕 Special Thanks
 
-✅ Aditya Halder Thanks For Fixed All Error Or Lovely Support 💕
+✅ kanishk Thanks For Fixed All Error Or Lovely Support 💕
 
 
-## 🥀 Powered By [BikashHalder](https://t.me/Bikashhalder) & [AdityaHalder](https://t.me/Adityahalder)
+## 🥀 Powered By [kanishk](https://t.me/izanafr) & [izanafr](https://t.me/izanafr)
